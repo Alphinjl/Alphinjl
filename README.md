@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alphinjl
-- 👀 I’m interested in blockchain,coding
+- 👀 I’m interested in blockchain,coding, entertainment industry
 - 🌱 I’m currently learning something new that could change my life
 - 💞️ I’m looking to collaborate on blockchain based technology
 - 📫 How to reach me
